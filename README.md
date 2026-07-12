@@ -182,7 +182,7 @@ https://github.com/dipeshsocials
 
 LinkedIn
 
-https://linkedin.com/in/dipeshkashyap17
+https://linkedin.com/in/dipeshsocials
 
 ---
 
